@@ -1,4 +1,4 @@
-**1. Who authored the first vampire story in Great Britain?**
+1. Who authored the first vampire story in Great Britain?
 Ans: John Polidori
  
 2. What is the subtitle of the novel Frankenstein?
